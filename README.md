@@ -1,0 +1,1 @@
+# Effectiveness-and-quality-of-information-systems-architectural-solutions
